@@ -1,0 +1,1 @@
+# Word-Of-The-Day-Mini-Prompt-Bundle
